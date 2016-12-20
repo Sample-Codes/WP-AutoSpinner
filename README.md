@@ -1,0 +1,2 @@
+# WP-AutoSpinner
+Purchased
